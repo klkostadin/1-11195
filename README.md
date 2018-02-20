@@ -1,1 +1,1 @@
-# 1-11195 Katerina Kostadinova
+# 1-11195 Katerina
